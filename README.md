@@ -17,5 +17,5 @@ Cybersecurity helps protect:
 -Business 
 
     # Career path am interested in
-still confused about that, i will like to dive further and understand the different path before finally choosing one that resonates with me.
+still confused about that, i will like to dive further and understand the different paths before finally choosing one that resonates with me.
 
